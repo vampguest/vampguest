@@ -1,17 +1,13 @@
 <p align="center">
- Hi I'm 17, Okay with any pronouns but I prefer He/Him. I read lot and has a shitload amount of fandoms and interests. Mainly about alien stage or something. I like action-fantasy genres the most. I'm okay with interaction but don't expect much enthusiasm in the way I talk, I reply late and dry and I'll admit to it. But I'm mostly nonverbal and prefer silent company (huge cudcomf, please don't be afraid to cuddle). As to why I'm nonverbal, talking isn't my forte, I'm not shy, I just have nothing to say.
+ <img src=https://file.garden/aDLNm-JCI0dbIn6A/20251002_214806.jpg>
+ <div align="center"
+ 
+<p align="center">
 
-<!--
-**YAOIGOD/YAOIGOD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ [Strawpage](https://ticklesyou.straw.page/) ✧ [Atabook](https://naviren.atabook.org/) ✧ [Rentry](https://rentry.org/kingofthecourtx)
 
-Here are some ideas to get you started:
+--------------------------------------
+ 
+ ```17, int and c+h 👍. W2i bc I'm mostly oftb. Not really talkative but a good silent company. I have a lot of fandoms I'm in```
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://komarev.com/ghpvc/?username=Vampguest&color=red&style=flat&label=✧&abbreviated=true)
