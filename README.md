@@ -6,7 +6,7 @@
 
 --------------------------------------
  
- ```17, int and c+h 👍. W2i bc I'm mostly oftb. Not really talkative but a good silent company. I have a lot of fandoms I'm in```
+ ```18, int and c+h 👍. W2i bc I'm mostly oftb. Not really talkative but a good silent company. I have a lot of fandoms I'm in```
  
  ```Due to recent events, I might be a little closed off, int is okay, but dont resort to harassment or impersonation, please.```
 
