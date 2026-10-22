@@ -4,13 +4,25 @@
  
 <p align="center">
 
---------------------------------------
+<hr>
  
  ```18, int and c+h 👍. W2i bc I'm mostly oftb. Not really talkative but a good silent company. I have a lot of fandoms I'm in```
- 
- ```Due to recent events, I might be a little closed off, int is okay, but dont resort to harassment or impersonation, please.```
+
+```Huge Roblox addict back in 2025, busy in college now tho```
+
+<details>
+ <summary><sup>Main roblox fandoms atm</sup></summary>
+ <sup>
+ - Dandys world <br>
+ - Forsaken <br>
+ - Phighting <br>
+ - Regretevator <br>
+ - SEWH <br>
+ - Demonology <br>
+ - Blocktales <br>
+ </sup>
+</details>
 
 ![](https://komarev.com/ghpvc/?username=Vampguest&color=red&style=flat&label=✧&abbreviated=true)
 
-_______________________________________________________
-[PLEASE READ](https://rentry.co/t8bmgnxp) . Thanks [Vince](https://github.com/V1NCENSE) 4 making this
+<hr>
